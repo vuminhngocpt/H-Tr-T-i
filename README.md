@@ -1,8 +1,4 @@
-1
-
-
-
-![Just a fun gif](https://ibb.co/CnQV3YK)
+#### Các Bạn Có Lòng Tốt Hãy Hỗ Trợ Tôi , Tôi Xin Chân Thành Cảm Ơn Mọi Người Đã Giúp Đỡ , Số Tiền Các Bạn Cho Tôi Sẽ Tạo Thêm Động Lực Cho Tôi Khi Tôi Làm Việc Và Tạo Nhiều Chủ Đề Sẽ Có Ích Tôi Hi Vọng Là Như Vậy 🥰 
 
 
 
