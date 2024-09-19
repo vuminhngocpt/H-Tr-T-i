@@ -13,6 +13,8 @@
 
 
 
-#### Cần Hỗ Trợ Hãy Nhắn Tin Zalo Cho Tôi
+####   Cảm ơn các bạn rất nhiều !
 
-[![D03-A7902-A42-F-46-DA-A352-675359-FF60-E9.jpg](https://i.postimg.cc/qvrrmfpr/D03-A7902-A42-F-46-DA-A352-675359-FF60-E9.jpg)](https://postimg.cc/SJgHsvX1)
+
+
+      (c) Vu Minh Ngoc
