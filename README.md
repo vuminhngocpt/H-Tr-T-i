@@ -17,4 +17,4 @@
 
 
 
-      (c) Vu Minh Ngoc
+      ©️ by Vu Minh Ngoc
